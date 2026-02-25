@@ -1,0 +1,56 @@
+# Charlie Puth – That's Hilarious
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:09.42] Look how all the tables
+[00:11.73] Look how all the tables have turned
+[00:13.98] Guess you're finally realizin' how bad you messed it up
+[00:18.25] Girl, you're only makin'
+[00:20.44] Girl, you're only makin' it worse
+[00:22.70] When you call like you always do when you want someone
+[00:49.70] 
+[00:27.79] You took away a year
+[00:29.82] Of my fuckin' life and I can't get it back no more
+[00:36.48] So when I see those tears
+[00:38.95] Comin' out your eyes, I hope it's me they're for
+[01:02.95] 
+[00:43.62] You didn't love when you had me
+[00:45.81] But now you need me so badly
+[00:48.02] You can't be serious
+[00:50.69] That's hilarious
+[00:52.77] Thinkin' I would still want you
+[00:54.85] After the things you put me through
+[00:56.94] Yeah, you're delirious
+[00:59.31] That's hilarious
+[01:07.31] 
+[01:02.85] Now you put the blame in (now you put the blame in)
+[01:05.00] Now you put the blame in reverse
+[01:07.18] Tryna make me feel guilty for everything you've done
+[01:11.66] You're another lesson (you're another lesson)
+[01:13.88] You're just another lesson I learned
+[01:15.94] Don't give your heart to a girl who's still got a broken one
+[01:45.94] 
+[01:20.98] You took away a year (took away a year)
+[01:23.32] Of my fuckin' life and I can't get it back no more
+[01:29.95] So when I see those tears (when I see those tears)
+[01:32.36] Comin' out your eyes, I hope it's me they're for
+[01:56.36] 
+[01:37.01] You didn't love when you had me
+[01:39.05] But now you need me so badly
+[01:41.35] You can't be serious
+[01:44.03] That's hilarious
+[01:46.28] Thinkin' I would still want you
+[01:48.24] After the things you put me through
+[01:50.49] Yeah, you're delirious (you're delirious)
+[01:52.92] That's hilarious (that's hilarious)
+[02:10.42] 
+[01:54.74] You didn't love when you had me
+[01:57.18] But now you need me so badly
+[01:59.35] You can't be serious (you can't be serious)
+[02:01.73] That's hilarious (that's hilarious)
+[02:03.93] Thinkin' I would still want you
+[02:06.08] After the things you put me through
+[02:08.15] Yeah, you're delirious (you're delirious)
+[02:10.55] That's hilarious (that's hilarious)
+```
